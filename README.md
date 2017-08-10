@@ -1,2 +1,0 @@
-# hujinfu.com
-yudy
